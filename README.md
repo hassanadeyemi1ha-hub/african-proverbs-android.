@@ -1,0 +1,1 @@
+# african-proverbs-android.
